@@ -46,7 +46,7 @@
 
 # **Directions**
 1. Step 1
-Preheat oven to 350 degrees F (175 degrees C). Grease and flour a 9x13-inch pan.
+Preheat oven to `350` degrees F (175 degrees C). Grease and flour a 9x13-inch pan.
 
 2. Step 2
 In a large bowl, combine the flour, sugar, cocoa, baking soda, baking powder and salt. Make a well in the center and pour in the eggs, coffee, milk, oil and vinegar. Mix until smooth; the batter will be thin. Pour the batter into the prepared pan.
