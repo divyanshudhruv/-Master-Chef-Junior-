@@ -1,14 +1,14 @@
 # **🍰 Ingredients To Make Chocolate Cake 🍰**
 
-**1.**&nbsp;  2 cups all-purpose flour
+**1.**&nbsp;2 cups all-purpose flour
 
 
 
-**2.** &nbsp; 2 cups white sugar
+**2.** &nbsp;2 cups white sugar
 
    
 
-**3.** &nbsp; ¾ cup unsweetened cocoa
+**3.** &nbsp;¾ cup unsweetened cocoa
 
    
 
@@ -16,31 +16,31 @@
 
    
 
-**5.** &nbsp; 1 teaspoon baking powder
+**5.** &nbsp;1 teaspoon baking powder
 
    
 
-**6.** &nbsp; ½ teaspoon salt
+**6.** &nbsp;½ teaspoon salt
 
    
 
-**7.** &nbsp; 2 eggs
+**7.** &nbsp;2 eggs
 
    
 
-**8.** &nbsp; 1 cup cold brewed coffee
+**8.** &nbsp;1 cup cold brewed coffee
 
    
 
-**9.** &nbsp; 1 cup milk
+**9.** &nbsp;1 cup milk
 
    
 
-**10.** &nbsp; ½ cup vegetable oil
+**10.** &nbsp;½ cup vegetable oil
 
     
 
-**11.** &nbsp; 2 teaspoons vinegar
+**11.** &nbsp;2 teaspoons vinegar
 
 
 
