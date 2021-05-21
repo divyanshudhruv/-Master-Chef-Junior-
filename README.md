@@ -1,4 +1,4 @@
-# **Ingredients**
+# **🍰 Ingredients To Make Chocolate Cake 🍰**
 
  1. 2 cups all-purpose flour
 
@@ -44,7 +44,7 @@
 
 
 
-# **Directions**
+# **💡 Directions 💡**
 1. Step 1:
 Preheat oven to `350` degrees F (`175` degrees C). Grease and flour a 9x13-inch pan.
 
@@ -58,7 +58,8 @@ Bake in the preheated oven for 35 to 40 minutes, or until a toothpick inserted i
 
 ## **🍫 Your Chocolate Cake Is Ready! 🍫**
 
-> I like `Chocolate Cake` very Much.
+
+>  😋 I like `Chocolate Cake` very Much 😋.
 
 :smile: **Made By @divyanshudhruv** :smile:
 
