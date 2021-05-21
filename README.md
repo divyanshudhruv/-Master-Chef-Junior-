@@ -56,11 +56,11 @@ Bake in the preheated oven for 35 to 40 minutes, or until a toothpick inserted i
 
 
 
-## **:🍫 Your Chocolate Cake Is Ready! 🍫**
+## **🍫 Your Chocolate Cake Is Ready! 🍫**
 
 > I like `Chocolate Cake` very Much.
 
-**Made By @divyanshudhruv** :smile:
+:smile: **Made By @divyanshudhruv** :smile:
 
 
 ![Image of Cake](https://greedyeats.com/wp-content/uploads/2018/02/Vegan-chocolate-cake-slice-with-vegan-frosting-683x1024.jpg)
